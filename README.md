@@ -1,4 +1,3 @@
-Olá!  👋
 
 
 <a href="https://www.linkedin.com/in/larissadepa/">
